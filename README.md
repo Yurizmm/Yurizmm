@@ -14,4 +14,5 @@ e não vou ficar me humilhando por algo q não vai dar certo, mas se eu tiver a 
 esses dias aí, eu tava aí perto de vc, pensei em mandar msg pra gente se trombar, mas achei melhor não, pfv não me ignora
 só quero uma resposta! Por mais q n seja aq eu tô esperando, eu só quero ficar bem, ainda mais cmg msm....
 Já me fudi mt por causa de botar esperança onde n existe tlgd, famoso emocionado, eu meio q já prevejo sua resposta
-pelo fato de como as coisas tão indo e de como tudo ocorreu, fica cm Deus e boa noite 
+pelo fato de como as coisas tão indo e de como tudo ocorreu, foi como eu disse no pagofunk, eu quero vc e não vou tirar 
+essa ideia da cabeça muito fácil...
